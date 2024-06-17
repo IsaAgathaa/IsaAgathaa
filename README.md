@@ -10,4 +10,4 @@ Meu nome é Pedro Bagagir
 
 agathacardelli@gmail.com
 
-![.](<div class="tenor-gif-embed" data-postid="18059553370350307210" data-share-method="host" data-aspect-ratio="0.56266" data-width="100%"><a href="https://tenor.com/view/cat-dance-dancing-cat-chinese-dancing-cat-funny-cat-meme-cat-gif-18059553370350307210">Cat Dance Dancing Cat GIF</a>from <a href="https://tenor.com/search/cat+dance-gifs">Cat Dance GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![.](https://tenor.com/pt-BR/view/cat-dance-dancing-cat-chinese-dancing-cat-funny-cat-meme-cat-gif-18059553370350307210)
